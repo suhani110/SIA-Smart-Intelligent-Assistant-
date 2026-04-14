@@ -39,4 +39,4 @@ SIA is under active development — more features coming soon!
 
 ## 🙌 Made by
 
-Built with passion by [Your Name] 🚀
+Built with passion by SUHANI SADH 🚀
